@@ -19,4 +19,3 @@ If you want to know more. knock Us – we are online 24/7 hours
 Telegram: @itzonesmm0
 Skype: Itzonesmm
 WhatsApp: +1 (989) 513-2521
-E-mail: liveitzonesmm@gmail.com
